@@ -1,0 +1,1 @@
+# gotoshotaro.github.io
